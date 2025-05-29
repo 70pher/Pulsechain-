@@ -1,2 +1,7 @@
-# Pulsechain-
----  # 🌈 PRSM: PulseChain's Light of Financial Freedom  > ⚡️ Powered by **frequency, light, and human evolution** – $PRSM is your key to the next DeFi revolution.  ---  ## 🔮 What is PRSM?  PRSM is more than a coin – it’s a **vibrational force** on PulseChain:
+Prism 
+Prism is more than a cryptocurrency – it’s the key to unlocking your true potential.
+It’s your shield, your power, your path to financial freedom.
+
+✅ Prism Pay – The next-level payment system: seamless transactions powered by the mind.
+✅ Prism Shield – Protect your energy, harness your frequency, and amplify your aura.
+✅ Prism Power – Activate your superhuman abilities with wearable Prism technology.
